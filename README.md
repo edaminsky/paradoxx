@@ -1,1 +1,0 @@
-# paradoxx.github.io
